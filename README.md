@@ -1,2 +1,2 @@
-# BeyondTheStarss.github.io
-funny pages woah we're using github???
+# Hello!
+if you're reading this, this isnt finished yet, i got bored -c
